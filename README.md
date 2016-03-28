@@ -1,2 +1,2 @@
 # learning
-learn something 
+学习新知识~
